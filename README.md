@@ -1,4 +1,5 @@
 # VELTRIX — by HRAZHUB
+# Thanks for all who support me from beggining
 
 **YOUR GAMES. ONE PLACE.**
 
